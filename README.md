@@ -1,1 +1,1 @@
-![Uploading Screenshot 2024-09-27 131936.png…]()
+https://mohit4289.github.io/normal-cv/
